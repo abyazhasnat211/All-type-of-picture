@@ -1,1 +1,1 @@
-# All-type-of-picture
+# all-type-of-picture
